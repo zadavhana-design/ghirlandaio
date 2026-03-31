@@ -137,6 +137,16 @@ Menurut jean Baudrillard teknologi sekarang sudah tidak bisa lagi dilihat sekeda
 
 2.3 Memberikan contoh kasus berdasarkan pengalaman pribadi terkait konsep teknologi dalam sudut pandang hiperrialitas
 
+Perkembangan teknologi digital telah membawa perubahan besar dalam kehidupan sehari-hari, khususnya dalam cara manusia memandang realitas. Dalam perspektif hiperrialitas, kehidupan modern tidak lagi sepenuhnya didasarkan pada kenyataan, melainkan pada representasi yang dibentuk melalui media. Salah satu contoh nyata dapat dilihat pada pengguna media sosial, dimana ada seseorang cenderung menampilkan citra diri yang telah diubah agar terlihat lebih menarik dan ideal.Foto dan video sehingga tidak lagi mencerminkan kondisi yang sebenarnya. 
+
+Fenomena ini juga berdampak pada pembentukan indentitas diri. Banyak individu, terutama remaja, membangun jati dirinya berdasarkan standar yang berkembang didunia digital. Mereka sering membandingkan diri dengan influencer atau figur publik yang menampilkan kehidupan sempurna, sehingga menimbulkan rasa tidak percaya diri dan ketidakpuasan terhadap diri sendiri. Dalam hal ini, identitas yang terbentuk bukan lagi hasil refleksi pengalaman nyata, melainkan kontruksi sosial yang dipengaruhi oleh citra digital. 
+
+Selain itu, konsep hiperrealitas juga dapat dilihat dalam tayangan reality show ditelevisi. Meskipun diklain sebagai gambran kehidupan nyata, pada kenyataan banyak adegan yang telah diatur atau dipengaruhi oleh kebutuhan produksi. Individu yang terlibat dalam acara tersebut cenderung menyesuaikan perilakunya agar sesuai ekspetasi penonton. Akibatnya, realitas yang ditampilkan karena telah bercampur dengan unsur simulasi yang diciptakan oleh media. 
+
+Dengan demikian, teknologi tidak hanya berfungsi sebagai alat komunikasi, tetapi juga sebagai pembentuk realitas baru dalam kehidupan manusia. Kondisi ini menuntut adanya kesadaran kritis agar individu mampu membedakan antara kenyataan dan representasi semu. Tanpa kesadaran tersebut, manusia beresiko terjebak dalam dunia hiperrlitas yang dapat memengaruhi cara berpikir, berperilaku, dan membangun identitas diri. 
+
+
+
 
 
 
