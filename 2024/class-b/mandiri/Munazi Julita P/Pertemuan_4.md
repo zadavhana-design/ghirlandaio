@@ -1,0 +1,5 @@
+# DAMPAK APARNET SAMPAI SAAT INI
+*Resume hasil presentasi kelompok 3: Transformasi Ekosistem Teknologi: Dari Dominasi Negara ke Era Kolaborasi Terbuka*
+
+# Pendahuluan
+Sejak pertengahan abad ke-20, perkembangan teknologi informasi modern, khususnya internet yang kita gunakan saat ini, memiliki sejarah yang kompleks. Komputer dan jaringan beralih dari sekadar alat militer ke infrastruktur digital global pada tahun 1960-an, yang merupakan titik balik penting dalam sejarah. Transformasi ini dimulai dengan proyek ARPANET atau *Advanced Research Projects Agency Network*. Namun, proses penciptaan dan pemanfaatan teknologi tersebut tidak terjadi secara mandiri, tetapi terdapat interaksi yang rumit antara negara, sektor swasta, komunitas teknis, dan nilai-nilai ideologis yang melingkupinya. Untuk memahami sepenuhnya apa saja pengaruh ARPANET saat ini, kita perlu membahas pola hubungan antar-aktor yang mengubah proyek pertahanan tersebut menjadi ekosistem digital yang mendominasi peradaban kontemporer, bukan cuma mebmbahas inovasi teknisnya saja. 
